@@ -16,3 +16,8 @@ mudança apos lincar repositorios
 
 
 
+vamos  dora para o cruso do git
+
+
+
+
